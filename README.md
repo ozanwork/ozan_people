@@ -1,1 +1,0 @@
-# ozan_people
